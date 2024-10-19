@@ -1,4 +1,4 @@
-👋 Hi, I’m @immortalking-git
+👋 Hi, I’m Raghu Raj Shree
 
 👀 I’m interested in:
 - Advanced mathematics, particularly algebra and number theory
